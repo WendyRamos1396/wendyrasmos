@@ -1,2 +1,2 @@
-# wendyrasmos
+# wendyramos
 wendyramosproyectofinal
